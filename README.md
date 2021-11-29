@@ -1,5 +1,5 @@
-# Hi there 👋
-# 📫 How to reach me: @miqbalwidi (IG)
+### Hi there 👋
+##### 📫 How to reach me: @miqbalwidi (IG)
 
 <!--
 **MuhammadIqbalWidiansyah/muhammadiqbalwidiansyah** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
