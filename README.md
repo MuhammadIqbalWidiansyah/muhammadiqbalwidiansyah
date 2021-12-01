@@ -1,4 +1,4 @@
-## Hi, Assalamualaikum, Shalom, Om Swastiastu 👋
+## Hi, Assalamualaikum, Shalom, Om Swastiastu 👋🙏
 #### - 📫 How to reach me: @miqbalwidi (IG)
 
 <!--
